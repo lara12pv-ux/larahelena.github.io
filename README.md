@@ -9,4 +9,4 @@
 - 🌱 Em constante aprendizado
 - 🚀 Buscando desenvolver meus primeiros projetos na área de tecnologia
 
-- ✉️(https://mail.google.com/mail/u/3/#inbox
+- ✉️(https://lara12pv@gmail.com
